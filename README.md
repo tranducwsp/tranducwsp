@@ -29,7 +29,8 @@ I take infrastructure seriously. My home setup serves as my personal playground 
 
 ### 🎮 Beyond the Code
 *   🚲 **Cycling:** Conquered the Vietnam Cross-Country Cycling trip (Đạp xe Xuyên Việt).
+*   🎙️ **MC & Vocals:** Event hosting / MC and a big passion for singing.
 *   🎮 **Gaming:** League of Legends 🔻 · Minecraft 🔶
 
 ---
-*Always learning, always optimizing.*
+*"You know, I'm something of a scientist myself."*
